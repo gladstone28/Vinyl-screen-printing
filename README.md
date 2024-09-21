@@ -63,9 +63,9 @@ ANSWER: Vinyl screen printing is a method used to transfer designs onto fabric, 
 This technique is perfect for creating multi-layered designs or adding custom vinyl shapes into traditional screen printing.
 
 
-Links
+Links to youtube videos
 
-screen printing
+screen printing:
 
 <https://www.youtube.com/watch?v=tgcbifcjubQ>
 
@@ -73,14 +73,12 @@ screen printing
 <https://www.youtube.com/watch?v=loZYD5jCuD8>
 
 
-
 <https://www.youtube.com/watch?v=f68Klf7tlv4>
 
 
-3 Ways to Screen Print Multi-Color Designs on a Press using Vinyl
+3 Ways to Screen Print Multi-Color Designs on a Press using Vinyl:
 
-
-https://www.youtube.com/watch?v=hPSOLYUEQR0
+<https://www.youtube.com/watch?v=hPSOLYUEQR0>
 
 
 
