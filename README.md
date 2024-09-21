@@ -77,7 +77,9 @@ screen printing:
 <https://www.youtube.com/watch?v=hPSOLYUEQR0>
 
 
+Screenprinting My Own Skateboard Decks!
 
+<https://www.youtube.com/watch?v=loZYD5jCuD8>
 
 
 
