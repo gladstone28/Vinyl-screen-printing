@@ -8,13 +8,21 @@ ANSWER: Vinyl screen printing is a method used to transfer designs onto fabric, 
 ### Materials You'll Need:
 
 **1. Vinyl:** You can use heat transfer vinyl (HTV) or adhesive-backed vinyl.
+
 **2. Vinyl Cutter:** A machine like a Cricut or Silhouette to cut your design into the vinyl.
+
 **3. Screen Printing Frame and Mesh:** A screen with mesh stretched over it (mesh count varies depending on the detail of your design).
+
 **4. Squeegee:** To press ink through the screen onto the fabric.
+
 **5. Screen Printing Ink:** Typically fabric ink for textile applications.
+
 **6. Heat Press or Iron:** Used if you're incorporating heat transfer vinyl.
+
 **7. Fabric or Material:** The t-shirt or fabric you’re printing on.
+
 **8. Weeding Tool:** To remove excess vinyl.
+
 **9. Transfer Tape:** For adhesive vinyl applications (optional).
 
 ### Steps to Vinyl Screen Printing:
