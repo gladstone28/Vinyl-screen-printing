@@ -1,9 +1,5 @@
-[Link to AI](https://chatgpt.com/c/66ef3abe-3b14-8006-83bb-fd95b83229a3)
 
-
-QUESTION: Can you explain how to do vinyl screen printing?
-
-ANSWER: Vinyl screen printing is a method used to transfer designs onto fabric, typically t-shirts, using vinyl and a screen printing process. It's a combination of two techniques: heat transfer vinyl (HTV) and screen printing. Here's a step-by-step guide to explain how it works:
+*Vinyl screen printing is a method used to transfer designs onto fabric, typically t-shirts, using vinyl and a screen printing process. It's a combination of two techniques: heat transfer vinyl (HTV) and screen printing. Here's a step-by-step guide to explain how it works:*
 
 ### Materials You'll Need:
 
